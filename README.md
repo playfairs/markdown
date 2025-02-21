@@ -1,2 +1,3 @@
 # markdown
-shitty repository specifically to store the dumbest .md files I can find or make
+
+### I purposely made this repo to store the dumbest markdown files I can find, thats literally it.
