@@ -22,4 +22,4 @@ putting you in my status with a pet name in front of your name = $49.99
 30 minutes of matching pfp = $9.99
 1-2 hours of matching pfp = $15.99
 
--# (offers available 24/7. DM me for payment) PRICES ARE FINAL NON Negotiable.
+###### (offers available 24/7. DM me for payment) PRICES ARE FINAL NON Negotiable.
